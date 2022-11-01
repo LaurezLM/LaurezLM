@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LaurezLM
+- 👀 I’m interested in manage my projects
+- 🌱 I’m currently learning androids apps and Google Play Store
